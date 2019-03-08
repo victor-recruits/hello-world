@@ -8,4 +8,5 @@ Building great relationships has been a theme across my career, whether be placi
 or through my lens and camera. 
 Let's connect and click!
 
+https://www.linkedin.com/in/victorau/
 #
